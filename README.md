@@ -1,4 +1,4 @@
-## ✨ Hi there 👋 
+## ✨ Hi 
 
 [My Letterboxd ! ](https://boxd.it/3qBlP)
 <!--
